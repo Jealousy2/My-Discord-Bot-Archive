@@ -15,3 +15,8 @@ in the Music.py file
 link too image too view the music.py file and what do too if you get the error 
 
 https://drive.google.com/drive/folders/17_7U2Qa0pR_tnE-QMgk9WpnzgvQRL8Cr?usp=share_link
+
+
+Edit the bot as you like i just made it for fun and im not done messing with it i have no interest in editing or fixing any problems wanted too make too see how far i can get and im done with it now
+
+you can dm me on discord if you need any help Jealousy#2312 or just open a request ill probably check it every once in a while 
